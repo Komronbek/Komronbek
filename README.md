@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Komronbek
+- 👀 I’m interested in Coding and playing online games.
+- 🌱 I’m currently learning Javascript Front-end developer.
+- 📫 How to reach me. With Telegram: @Komron_717.
